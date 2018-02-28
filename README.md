@@ -1,0 +1,2 @@
+# Slemenjak
+priimek
